@@ -3,5 +3,6 @@
 Hi!
 
 wangpengwpw here.
-For the first time, I didn't know anything, dared not say anything, and dared not ask.
-You say it's not irritating.
+It's the first time I've used this thing. I'm not sure. I dare not say it, nor dare to ask.
+
+You say it's not irritating!
